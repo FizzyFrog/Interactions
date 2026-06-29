@@ -16,7 +16,7 @@
 
 # 🚨 : 𝐒𝐇𝐈𝐏𝐒 ~ 𝐃𝐍𝐈 , 𝐈𝐍𝐓
 
-<img width="200" height="200" alt="AngelMoth" src="https://file.garden/Ze1CYAZmvAenbmzq/silly-valangel-headcanon-before-the-hotel-they-used-to-v0-ihkbp93g716h1.jpeg"/>
+ㅤㅤㅤㅤㅤ<img width="200" height="200" alt="AngelMoth" src="https://file.garden/Ze1CYAZmvAenbmzq/silly-valangel-headcanon-before-the-hotel-they-used-to-v0-ihkbp93g716h1.jpeg"/>
 
 𝙼𝚒𝚗𝚎 ~ 🐾
 
