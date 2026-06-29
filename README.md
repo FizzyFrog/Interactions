@@ -11,11 +11,7 @@
 ⏤✩ 𝚁𝚘𝚕𝚎𝚙𝚕𝚊𝚢-𝚒𝚜𝚑 : 🦢
 𝙸 𝚙𝚛𝚎𝚏𝚎𝚛 𝚝𝚘 𝚘𝚗𝚕𝚢 𝚑𝚊𝚟𝚎 "𝚛𝚘𝚕𝚎𝚙𝚕𝚊𝚢𝚜" (𝚌𝚞𝚍𝚍𝚕𝚒𝚗𝚐 + 𝚑𝚒𝚍𝚒𝚗𝚐, 𝚛𝚎𝚕𝚊𝚡𝚒𝚗𝚐) 𝚠𝚒𝚝𝚑 𝚘𝚗𝚎 𝚜𝚙𝚎𝚌𝚒𝚏𝚒𝚌 𝚙𝚊𝚛𝚝𝚗𝚎𝚛 𝚙𝚎𝚛 𝚌𝚘𝚜. 𝙸 𝚖𝚊𝚢 𝚑𝚊𝚟𝚎 𝚖𝚘𝚛𝚎 𝚝𝚑𝚊𝚗 𝚘𝚗𝚎 𝚙𝚎𝚛 𝚙𝚎𝚛𝚜𝚘𝚗 𝚒𝚏 𝙸 𝚏𝚒𝚗𝚍 𝙸 𝚕𝚒𝚔𝚎 𝚝𝚑𝚎𝚖 𝚎𝚗𝚘𝚞𝚐𝚑. 𝙸𝚍 𝚛𝚊𝚝𝚑𝚎𝚛 𝚝𝚑𝚒𝚜 𝚛𝚎𝚜𝚙𝚎𝚌𝚝 𝚋𝚎 𝚖𝚞𝚝𝚞𝚊𝚕 𝚋𝚞𝚝 𝚒𝚝 𝚒𝚜 𝚗𝚘𝚝 𝚛𝚎𝚚𝚞𝚒𝚛𝚎𝚍, 𝚘𝚋𝚟𝚒𝚘𝚞𝚜𝚕𝚢, 𝚑𝚘𝚠𝚎𝚟𝚎𝚛, 𝙸'𝚕𝚕 𝚙𝚛𝚘𝚋𝚊𝚋𝚕𝚢 𝚓𝚞𝚜𝚝 𝚋𝚎 𝚕𝚎𝚜𝚜 𝚒𝚗𝚝𝚎𝚛𝚝𝚠𝚒𝚗𝚎𝚍 𝚒𝚗 𝚝𝚑𝚎 𝚖𝚘𝚖𝚎𝚗𝚝
 
-❢ ~ 🍦 𝙵𝚒𝚣𝚣/𝙵𝚛𝚘𝚐 - 𝟷𝟽 - 𝙶𝚊𝚢 : ʚɞ 
-
-❥ : 𝙸𝚖𝚙𝚘𝚛𝚝𝚊𝚗𝚝 𝙸𝚗𝚏𝚘 𝙱𝚎𝚕𝚘𝚠 ❢ ~ 🦈 
-
-<img width="438" height="271" alt="𝚘𝚣𝚣𝚏𝚛𝚘𝚐" src="https://media1.tenor.com/m/hJcmdbzaE2AAAAAd/helluva-boss-fizzarolli.gif" />
+<img width="438" height="271" alt="Vassago" src="https://64.media.tumblr.com/6fc86fd3d0ec68fa198c23fcfbe92d2f/4609847b67a4fc55-1c/s540x810/9ddacf099dd58a081db325be794858ee82661a13.gifv" />
 
 
 # 🚨 : 𝐒𝐇𝐈𝐏𝐒 ~ 𝐃𝐍𝐈 , 𝐈𝐍𝐓
@@ -31,4 +27,4 @@
 💚 : 𝐈𝐍𝐓 𓆩 ❢ 𓆪 
 𝙾𝚣𝚣𝚒𝚎 | 𝙷𝚞𝚜𝚔 | 𝙱𝚕𝚒𝚝𝚣ø | 𝚂𝚝𝚘𝚕𝚊𝚜 | 𝙽𝚘𝚗𝚎 𝚘𝚗𝚕𝚢 /𝙿! | 𝚅𝚘𝚡/𝙰𝚕𝚊𝚜𝚝𝚘𝚛 | 𝚅𝚊𝚕/𝙰𝚕𝚊𝚜𝚝𝚘𝚛 ~ ʚ🧡ɞ
 
-<img width="438" height="271" alt="𝚂𝚝𝚊𝚝𝚒𝚌𝙼𝚘𝚝𝚑" src="https://64.media.tumblr.com/6189d9d3e2efe9502a924f578dc2964b/c61b33ad92137e12-89/s540x810/2732eae80b37c0386cc8edde650bfebbb1318d22.gifv" />
+<img width="438" height="271" alt="RadioStatic" src="https://giffiles.alphacoders.com/221/221591.gif" />
